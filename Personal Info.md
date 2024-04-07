@@ -15,7 +15,7 @@
 ![87562e504f4c4b330fe0cf5ce582690](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/893adff0-5106-4b28-a8b7-69e3cd3de61f)
 ![89d0ae9ef9205a543df426caa82c1d6](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/20cc3b47-eb71-4850-9e92-31c361c471d0)
 ![c944d253a25db0706f35e8dfbe1fafc](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/071e2d69-e124-4e48-b255-4dc01073582a)
-![522f386a39d563ac40440f59d2ae647](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/1f01e604-27fa-4cd4-af6e-798196e91de9)
+
 
 
 
