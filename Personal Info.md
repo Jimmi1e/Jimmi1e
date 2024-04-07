@@ -5,6 +5,11 @@
 - 📫 How to reach me: You can drop me a message on [LinkedIn](www.linkedin.com/in/jiaxi-yang-8249aa291) or send me an email at yjxyang2@outlook.com.
 - 📷By the way, I'm an enthusiastic amateur photographer
 - 🖼️If you're tired, take a look at these low-quality image works of mine
+- 
+![259d203c44e7ea4242519d5a3f118d0](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/c6b22240-b380-40e7-a9d3-88980b87dd10)
+![cd266970bdbb86bf51aea269838b8f3](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/32c40120-1233-48ac-9b31-2269acfc73d0)
+![aa4f6fcd9a67c2aec16856d06f6eced](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/f1003667-c0cb-4507-8d27-d5c4e91d5dfe)
+
 
 ![f902c25425a9ce60a8e51d7101368c7](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/5aed0d4f-2748-47ab-95bc-5ad38e07f1eb)
 ![096352761e6d38da5124235f946bd0a](https://github.com/Jimmi1e/Jimmi1e/assets/144962751/ce275a62-ad9a-426f-aaa3-e07ba3da8bcb)
